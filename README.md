@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ahmedshaik776
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning programing languages
+- 📫 How to reach me shaikayazahmed776@gmail.com
